@@ -1,5 +1,5 @@
 # 👋 Hello! Welcome to my Github profile.
-## My name is Nathalia and my nickname is Luce!
+## My name is Lúcifer and my nickname is Luce!
 
 - 🔭 I’m currently working on ...
 
